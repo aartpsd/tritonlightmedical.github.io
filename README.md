@@ -1,1 +1,0 @@
-# tritonlightmedical.github.io
